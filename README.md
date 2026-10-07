@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @abuelhijarwad
-- 👀 I LOVE electrical engineering && embedded systems engineering
-- 📚 currently electrical engineering student at Technion - Israel Institute of Technology
-- 🥊 Athlete and fun lover 
+- 👀 I LOVE making new stuff
+- 📚 currently electrical engineering student at Braude college
+- 🥊 Athlete, programmer and fun lover 
 - 📫 How to reach me: abuelhijarwad@gmail.com
 - ❤️‍🔥 2 hours of sleep, 600 mg of caffeine and a fucking dream (:
